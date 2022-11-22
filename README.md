@@ -4,5 +4,6 @@
 
 ## Social Media
 > Discord: Zeth#7808 (I don't tend to accept random friend requests)</br>
+> Steam: https://steamcommunity.com/id/zethkielyeah/</br>
 > AniList: https://anilist.co/user/Zethkiel/</br>
 > Email: zeth_kiel27@outlook.com
